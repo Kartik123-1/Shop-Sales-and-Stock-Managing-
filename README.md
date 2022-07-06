@@ -1,0 +1,1 @@
+# Shop-Sales-and-Stock-Managing-
